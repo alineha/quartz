@@ -1,0 +1,9 @@
+- the rote. [[orsemar]]'s rules. numbered
+- taught version: the skeleton. pure rules. no life. the last entry, included in the original, is missing. what every [[qervâdle]] learns
+- the original is different. [[orsemar]]'s own hand. older. the rules embedded in a life — her days, the weather, a bad knee, someone she fed, the work named plainly. a diary grew through. you can't separate the doctrine from the woman
+- the final rule. last thing in it. a limit — a kind of condemned the hand must refuse. she drew a line
+- not written cold. the one place her certain voice wavers. you can hear it cost her
+- no copied rote includes it. the trade exists by amputating her own boundary. the creed's origin forbids what the family became
+- [[kindle]] has the original. carries it. besides the bulb and her swords, the one thing she kept
+- she's read the final rule. she knows the founder would have refused — what the family did, what she was trained to do, what she did once, on a battlefield
+- it doesn't help. the rule came too late. she'd already done it. knowing the saint would've said don't doesn't give the dying [[çintalhenses|çintalhense]] back their life

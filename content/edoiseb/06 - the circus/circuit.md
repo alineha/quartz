@@ -1,0 +1,10 @@
+- base camp / winter retreat: [[soléna]], a warmer periphery town a few hours outside [[morrânça]]'s walls. warm by local standards (still cold by anyone else's). circus stores equipment here, repairs tents, rehearses new acts, retreats from the worst weeks of winter
+- main circuit (peripheral cities): 6~8 mid-sized cities in the metropolitan/peripheral belt around [[morrânça]]. each gets a week or two. families bring kids. the circus is the major non-state entertainment available (radio is gone due to [[lutrons|lutron]]-disruption, [[the battery era (25-89PÇ)|pre-revolution]] film industry is dead, theater is state-controlled and propagandistic). the circus is real art that travels
+- [[the periferia interna|periferia interna]] visits: twice a year, maybe. they manage to perform inside [[morrânça]]'s walls, in the inner periphery district. permits required, state agents in the audience. higher-prestige, more dangerous. most important shows for funding and influence
+- [[cinzária]] shows: rare, off-the-books, by invitation only. dangerous. when they perform here, the cast performs differently... more political, more pointed, more "real".
+- annual long tour: once a year, a longer route through [[kalesta]] and [[brâhom]] (client states, less surveilled, hungry audiences). main moneymaking trip. emotional homecoming for half the cast (some were born in these places). lighter politically - more pure entertainment
+- they don't go:
+  - [[the apex]] / the crown - never. [[vow]]'s territory
+  - [[andresca]] and [[lhirâta]] - too politically charged. permits denied. association with separatists
+  - [[vesperna]] or the [[high south]] - too remote
+  - the [[broken regions]] - actively dangerous

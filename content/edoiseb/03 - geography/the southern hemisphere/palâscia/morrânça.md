@@ -1,0 +1,10 @@
+- name unchanged (morrânça). the city is older than the state, older than [[palâscia|brihčiá]] as a nation.
+- people: morrancenses (formal), morrânços / morrânças (colloquial)
+- built into the side of a massive mountain. think [machu picchu](https://en.wikipedia.org/wiki/Machu_Picchu), terraced upward, vertical instead of horizontal. each terrace is a district
+- a wall runs around the city partway up the mountain. inside the wall = morrânça proper. outside the wall = the [[the periferia externa|perifery]] and beyond
+- the wind comes up the mountainside constantly. the higher you go, the colder and windier. combined with cooling resulting from [[lutrons|lutron]]-flow, [[the apex]] is brutally punishing. the city hums from the wind funneling through the architecture - a constant, low-frequency tone. locals don't notice, and visitors find it unsettling
+- foggy. half the city is half-invisible to itself for hours every day
+- ice everywhere on the steps and terraces. state-employed people thaw certain steps with lanterns, fires, heated stones (the city outsources warmth because lutron flow can't provide it)
+- climate is a forever fall/winter-- the trees outside the city proper are stunted, gnarly, never finished dying for winter and never bloomed for spring.
+- morrânça is roughly 1,500~2,000 years old, carved and re-carved terrace by terrace by successive generations and governments. [[the apex]], last section to be built, was home to a dozen or so long dead regimens
+- districts are so that highest = coldest = most powerful = most [[çintalhenses|çintalhense]], down to lowest = warmest = poorest = mostly unconverted

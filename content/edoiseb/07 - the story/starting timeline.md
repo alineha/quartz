@@ -1,0 +1,4 @@
+- revolution happened 10 years ago
+- [[kindle]] is 27. circus is new to her — joined right after the betrayal, months before story-present, not years. spent years drifting before joining
+- post-revolution society is established but not ancient. older unconverted still have living memory of pre-revolution life. younger ones grew up entirely in this world
+- the generational divide is real and active. [[kindle]] is on the cusp - old enough to remember, young enough to still be reshapeable

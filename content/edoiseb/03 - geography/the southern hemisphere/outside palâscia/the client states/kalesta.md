@@ -1,0 +1,1 @@
+[[palâscia]]'s longtime trade partner, "voluntarily" aligned. has its own [[çintalhenses|çintalhense]] government but always votes with [[palâscia]] internationally. [[palâscia|palâscian]] troops "stationed" by "invitation"

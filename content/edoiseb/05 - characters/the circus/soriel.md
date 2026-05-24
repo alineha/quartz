@@ -1,0 +1,9 @@
+- soriel, [[çintalhenses|çintalhense]]. [[fárlo]]'s husband and catcher. they were married long before the circus.
+- transformation mostly present on his hands and arms— multi-jointed, lengthened, marble white. more articulate than human hands should be.
+- he was the troupe's glue. the connective tissue. the one who kept a [[l'cirqur lhêvora|circus]] of traumatized outcasts together
+- taken ~99–100 PÇ. charge: "destabilizing the state."
+- the reason: the state doesn't crush this type of group — that makes martyrs. it makes the [[l'cirqur lhêvora|circus]] crush itself. pull out the heart. a precise demolition, from the inside.
+- second reason: they took soriel calculating it would break [[fárlo]] specifically. not to make him become an informant, no, [[fárlo]] waits for the offer and it never comes. there's no saving grace, no option for him to get soriel back— just an example to be made of, of what becomes of those who defy the state. he might leave, and if he does so, another pillar of the circus leaves. without that pillar, it might (finally) collapse.
+- the petitions... [[orvaccio]] still files them. unlikely it'll solve anything, and everyone knows. the quiet grief fills all of them. nobody says his name much.
+- the (possible) return (mid/late, maybe second book?): the plan half-works. the state gives him back. hollowed. forced draining, "rehabilitation," a quieted man, no more heart, no more soul.
+- [[fárlo]] doesn't get a grave, but also doesn't get his husband back. he gets the worst: the man returns, wearing soriel's face, and is not soriel

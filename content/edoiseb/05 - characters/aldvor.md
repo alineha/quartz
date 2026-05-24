@@ -1,0 +1,4 @@
+- aldvor pôsc. a normal man, poor, caught at his wit's end. he converted.
+- fell in love with [[vow]], but kept the [[çintalhenses|battery]] work due to his contract with the pre-revolution government.
+- the [[the revolution (90PÇ)|revolution]] came too late. his mind was already gone by then, and the loss of his son didn't help.
+- alzheimer-like symptoms. likely cared for by many nursed throughout the day. a shadow on [[quell]]'s life.

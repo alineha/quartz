@@ -1,0 +1,4 @@
+- female, she/her
+- unconverted, old, has been at the [[l'cirqur lhêvora|circus]] longer than some of the cast has been alive. knew the previous owner/ringmaster before [[orvaccio]].
+- genuinely joyful. genuinely loves her craft. a foil to [[kindle]]
+- **why could she be the [[the betrayal|betrayer]]?** she's old, she's tired, and she loves the circus very much. while being told that she could save the circus, there is little to nothing she wouldn't do.

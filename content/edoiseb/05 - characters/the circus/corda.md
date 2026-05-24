@@ -1,0 +1,6 @@
+- female, she/her
+- unconverted. handles money, permits, bribes, the paperwork
+- someone whose whole job is talking to power and coming back intact. she lies to officials for a living, on the troupe's behalf, and is good at it. they love her for it. they also, structurally, can never fully verify her
+- weary, dry, competent, underthanked. believes she is the only thing between the troupe and the dark, and she's largely right, and being right like that does something to a person over years
+- closest to [[orvaccio]] (they carry the survival of the [[l'cirqur lhêvora|circus]] together) and the only other person who deals with the state at all — which means if anyone could pass information and have it look like ordinary business, it's her, and no one would ever see the seam
+- **why could she be the [[the betrayal|betrayer]]?** her job is contact with the state. a betrayal here doesn't even look like betrayal — it looks like a tuesday. one conversation that went one sentence too far, under pressure, to protect the troupe, that she has folded so deep into "doing my job" that she may genuinely not categorize it as the thing that took soriel. the betrayer who could most plausibly not know they're the betrayer

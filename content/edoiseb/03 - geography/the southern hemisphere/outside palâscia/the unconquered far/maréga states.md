@@ -1,0 +1,1 @@
+collection of small republics that survived because they're geographically isolated and not worth conquering. tropical, far from [[palâscia]], [[çintalhenses|çintalhense]]-converted but politically completely different (some democracies, some theocracies, one run by a [[çintalhenses|çintalhense]] council elected by region).

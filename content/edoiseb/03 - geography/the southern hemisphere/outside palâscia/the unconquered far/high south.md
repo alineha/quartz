@@ -1,0 +1,1 @@
+beyond [[vesperna]]. frozen, sparsely populated, never colonized, never converted in any organized way. people there are unconverted by happenstance, too far from [[lutrons|lutron]]-rich zones to spontaneously [[conversion mechanisms|convert]]. last large unconverted population in the world that isn't an imperial subject. [[palâscia]] hasn't decided what to do with them

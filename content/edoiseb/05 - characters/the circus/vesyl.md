@@ -1,0 +1,6 @@
+- nonbinary, they/them
+- [[çintalhenses|çintalhense]]. transformation reshaped the spine and joints. can do contortions the way a human body can't
+- the act isn't a freakshow, but pure anatomy. they like showing off how cool they are/feel
+- quiet, precise, keeps to themself... sometimes throws cruel quips but never without reason.
+- doesn't trust kindle
+- **why could they be the [[the betrayal|betrayer]]?** no one knows where they're from, though some assume cinzária. it seems like they fled their previous life... a person who has already, once, walked away from everything and started clean would know how to do it again

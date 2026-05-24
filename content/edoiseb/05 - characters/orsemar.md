@@ -1,0 +1,10 @@
+- orsemar [[qervâdle]]. the founder. everyone in the line knows her name.
+- predates the [[çintálhi]]. by a lot. never knew çintalhenses would exist
+- before her, the [[qervâdle|qervâdles]] were nobody. one [[a vârsălhe|vârsălhe]] line among many
+- then a crisis (beginning of the death penalty). condemned criminals butchered. slow. public. killing happening anyway, and badly
+- she stepped in. did them clean. called it the only mercy left
+- the discipline followed her. then the state. the trade was born
+- her original mercy was arguably real. clean deaths for the butchered. defensible. maybe even good
+- that's the horror. the creed never had to be corrupted to kill the innocent. it never asked who. only how
+- [[çintálhi]] comes. [[çintalhenses]] appear. the state needs them dead. the family points her unchanged creed at them. it fits. first try. not one word rewritten
+- she'd be horrified. or she wouldn't. nobody gets to know. that's the point

@@ -1,0 +1,11 @@
+- orvaccio. an unconverted man who runs the circus & does the narration of the shows. orphan chosen to continue the line of ringmasters before him, each handed the show and the duty under it
+- the circus was always a haven. pre-[[çintálhi]], long before any of this. it took the shunned, the orphaned, the nowhere-people. whoever the world threw away
+- [[the battery era (25-89PÇ)|pre-revolution]] it hid [[çintalhenses]] from the blade, from the catalogs. for generations they hid in plain sight — who looks twice at a circus?
+- their message is "anti-discard". it never asks what you are. only whether you were thrown away
+- he's tired.
+- he doesn't preach coexistence. he keeps a sanctuary. like the one before him. like the one before them
+- his fear isn't "what if it's false." it's "what if i'm the one who finally loses the thing they kept safe for a hundred plus years"
+- the betrayal nearly broke the circus under his watch. so he gambled again on [[kindle]]. out of sheer, dumb hope
+- he knows [[kindle]] is a [[qervâdle]], knew on arrival. the heir of the blade his line spent a century smuggling [[çintalhenses]] away from. he took her in anyway. the sanctuary takes the discarded, and the hunter's daughter is still discarded
+- and pragmatic: in a troupe where everyone is now a suspect, the only trustable new bond is the one person who can't be the traitor — she wasn't here yet. he took her partly because she was the only clean surface left. the hope and the calculation were the same act
+- she doesn't know he knows. she thinks she's unseen. she isn't.

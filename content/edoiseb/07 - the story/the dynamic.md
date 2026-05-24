@@ -1,0 +1,3 @@
+- dramatic irony: [[quell]] is obsessed with [[kindle]] because he can't perceive her. [[kindle]] is terrified of him because she thinks he can
+- his attention forces her into actual self-perception. she can't perform kindness at him the same way because he keeps asking. she has to answer. answering forces her to know herself
+- however, at a different point in time, he also  becomes another duty in a life made of duties. her self-hatred + his class position + his family pressure crushes her

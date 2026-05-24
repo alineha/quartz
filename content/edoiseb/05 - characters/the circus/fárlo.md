@@ -1,0 +1,10 @@
+- fárlo frascove-fjorv. ftm. [[çintalhenses|çintalhense]]. the aerialist. married to [[soriel]], his catcher - the duo the [[l'cirqur lhêvora|circus]]  was built around. beautiful feathered white wings. once the signature act
+- his act is still aerial, but slower, aching, adapted to his scars. it wasn't retired, just changed.
+- the audience finds it beautiful, moving. the [[l'cirqur lhêvora|circus]] troupe just sees what's missing— the difference between what it used to be and what it is now. it's heartbreaking.
+- off-stage: rigging, catching and training new aerialists.
+- was [[the burning|burned]] by a contra-revolutionary cell
+- his scars are not hidden, but not used as part of the performance either. they're just there, not a freakshow-addition, just another part of him some guests may not even realize is there.
+- fárlo doesn't hate the unconverted, but flinches near them. almost as if scared. he feels ashamed of it.
+- [[soriel]] was taken by the state around 6 months before story-open (99-100PÇ). fárlo flies the duet alone now. scarred wings, no catcher — and has become the catcher for the young fliers himself, doing both their jobs at once
+- the flinch is no longer just shame. the state took [[soriel]] to break fárlo — they bet he'd turn on the [[l'cirqur lhêvora|circus]]. the troupe's survival quietly hangs on him not doing the thing he has every reason to do.
+- the one who mapped where he breaks is still in the troupe. he doesn't know which face. he flies every night beside people, one of whom sold his fault line. he cannot be known by anyone safely again.

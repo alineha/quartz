@@ -1,0 +1,28 @@
+lowest district inside the walls. walled off internally as well as externally
+
+- the lowest, oldest, densest district inside morrânça's walls. originally a working-class neighborhood pre-revolution. used during the revolution as a holding area for prisoners and "people of concern"
+- post-revolution: thousands of unrepentant pre-revolution loyalists, disgraced aristocrats, surviving militants (some vârsalhos among them), unconverted hardliners, fallen-from-grace çintalhenses, people the state didn't want around but couldn't justify killing.
+- the solution: a second wall + a ceiling. fenced cinzária off from the rest of the city, cut its lutron infrastructure, posted minimal guards at the gates, left it
+- about a decade in: cinzária is its own world now
+- how it's heated: no lutron flow. everything runs on coal, wood, charcoal. constant fires. the whole district smells of smoke. buildings are blackened. the sky over cinzária is dirty even when the rest of morrânça's is foggy-clean.
+- kowloon walled city but eastern european
+- demographics:
+  - mostly unconverted: poor, hardliner, traditionalist, criminal, refugee. their children and descendants
+  - a minority of çintalhenses: usually disgraced. dissidents, criminals. its said they try, with no success, to communicate with other çintalhenses through lutron flow asking for help
+- cinzária is warmer than the rest of the city. some residents have never felt the brihč. some have never seen a clear sky. some don't believe the rest of the city exists
+- the economy: black-market kits trade happens here. illegal weapons (yes, very rare guns). information brokering. asylum.
+- the surviving [[a vârsălhe|vârsalhos]] are here:
+  - [[anciâ]]
+  - a few younger [[the vârsalhos|vârsalhos that survived]], [[kindle]]'s age or slightly older. former apprentices. further radicalized over the decade. they want the discipline back. they want [[kindle]] (the famous teacher's prize student) to come home and lead them
+  - others [[kindle]] doesn't know about. the network is fractured
+- [[kindle]] and cinzária:
+  - performed there twice. terrifying both times. once, an old man in the audience stared at her the entire show. she nearly fled mid-act. afterward he didn't approach her. she still doesn't know if he recognized her
+  - never gone in as a visitor, only as a performer (in and out the same night, escorted)
+  - letters reach her, somehow, through the circus's mail. she burns them without reading. at last count, eleven letters. she does not allow herself to wonder what they said
+- [[quell]] and cinzária:
+  - has never been inside. wouldn't be safe. an aristocratic çintalhense alone in cinzária would not come out
+- the political stakes:
+  - cinzária is where the contra-revolution functionally lives. densest concentration of [[the battery era (25-89PÇ)|pre-revolution]] loyalists, surviving militants, and ideologically opposed unconverted in the empire
+  - the state knows. tolerates it because the alternative is a massacre that would destabilize everything. let them stew, let them age, let them die out
+  - but cinzária is slowly organizing. nobody in the state quite knows how organized. rumors of plans
+  - [[vow]] knows more than most. intelligence is her job. she has informants. she's been getting whispers about "[[a vârsălhe]] at the circus" for months. she hasn't confirmed it. she suspects. she's watching

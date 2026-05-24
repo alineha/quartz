@@ -1,0 +1,17 @@
+- thessa [[qervâdle]], née pelhane. married in. the convert
+- pelhane was minor genteel. forgettable. no grandeur, no purpose. she met the creed and it gave her life the meaning her own blood never could
+- didn't marry up for status. married into a purpose. the trade is the most important thing that ever happened to her. she will not be told it was monstrous
+- the ledger-keeper. she doesn't kill. she records
+- the state didn't ask for it. the family didn't need it. she keeps it because the people the hand ends deserve to be known
+- her logic: a clean death is mercy for the body. being witnessed, fully, by someone who cared to look, is mercy for the person
+- she researches them. lives, loves, habits, who they were before. writes it with real tenderness. she believes she's the only one who ever truly saw them. gnostic praxis. witnessing as knowing as holiness. she invented her own discipline of the witness, devoutly.
+- [[orlen]]'s gentle hand killed. thessa's loving gaze consumed. total. intimate. without consent
+- she thinks the ledger is the kindest thing in the whole apparatus. it is also stalking the dead. and, in one case, the living. for fifteen years
+- she thought [[orsemar]]'s final rule was the founder going soft.
+- she loved [[kindle]] the way she kept the ledger. total. consuming. surveilling. [[kindle]] grew up known too completely. no privacy. no interior her mother didn't catalog
+- almost abusive. it didn't feel like being loved. it felt like being recorded
+- that's the root of [[kindle]]'s terror of being seen. not generic. her childhood.
+- both parents trained her. [[orlen]] the hand. thessa the eye. both gently. both lovingly. both monstrous. she inherited a complete theology of loving people by ending them clean and knowing them whole
+- now: alive. imprisoned. unrepentant — not defiance. peace. serene, like orlen was serene. "kind." makes friends with her captors. would do it again. keeps records of the prison — the prisoners, the guards — as her one allowance. she cannot stop witnessing
+- [[kindle]] knows she's alive. knows where. worse than not knowing. [[orlen]] she can't bear to imagine. thessa she could go to. and chooses, every day, not to
+- a living mother. locatable. unrepentant. and kindle will not go visit. (someday she might have to)

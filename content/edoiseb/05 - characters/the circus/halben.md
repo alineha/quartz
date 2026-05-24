@@ -1,0 +1,5 @@
+- female, she/her
+- unconverted. raises the tent, mends the rig, builds and rebuilds. the "strongwoman" framing is an old troupe joke she tolerates — strength was never the act; the work is
+- her hands keep everyone alive. [[fárlo]] flies on rigging halben tied. nobody thinks about her, which is exactly her place and she likes it that way
+- steady, near-silent, grief carried like ballast. was close to [[soriel]] — two quiet load-bearing people, the kind of friendship that's mostly shared work and few words. soriel's absence hit her in a way she has no language for and shows no one
+- **why could she be the [[the betrayal|betrayer]]?** TBD

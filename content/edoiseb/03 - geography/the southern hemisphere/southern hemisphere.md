@@ -1,0 +1,3 @@
+- [[the battery era (25-89PÇ)|pre-revolution]]: many countries, all sharing a similar religions ([[cosmic context|visions]] of angels/biblically accurate aesthetic). normal geopolitics, disputes over land, but no holy wars
+- [[post-revolution]]: [[palâscia]] (the first successful çintalhense uprising) had secure comms via [[lutrons|lutron]] and a good head-start in organizating their country. neighboring revolutions came later, and were way, way messier. [[palâscia]] "helped." the help became annexation. think roman empire, soviet bloc
+- overall the story and countries are in the southern hemisphere. northern hemisphere is unknown

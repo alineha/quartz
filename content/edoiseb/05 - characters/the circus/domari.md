@@ -1,0 +1,6 @@
+- male (ftm), he/him
+- unconverted. sleight-of-hand, misdirection, card and coin and vanish. pure human trickery
+- _everything i do is a lie and i'll tell you it's a lie_
+- showman offstage too. charming, quick, everyone's friend, hard to actually know
+- warm with [[quell]] (most aren't — [[quell]]'s mother makes people careful). domari isn't careful. [[quell]] mistakes it for courage. it might just be that domari is comfortable around power
+- **why could he be the [[the betrayal|betrayer]]?** a man whose entire craft is making you look at the wrong hand. whose whole self is misdirection so smooth it reads as friendliness. the troupe would never suspect him because _liking him_ is the trick — and he's the one person professionally trained to do a thing in front of everyone and have no one see it

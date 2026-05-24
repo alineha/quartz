@@ -1,0 +1,10 @@
+- female (mtf), she/her.
+- older, [[çintalhenses|çintalhense]], grandmotherly but only towards animals.
+- small, calloused, the kind of woman who looks like she's been doing the same work for thirty years because she has.
+- the transformation: extra eyes. her eyebrows aren't eyebrows. a row of small dark eyes across each brow, slit-pupilled.
+- cost: bright lights hurt her. she squints at the audience. works the menagerie in low light by preference. her tent is always dim.
+- bad with people. blunt to the point of rudeness, no small talk, runs out of patience fast with human distress in a way she never does with animal distress. can sit motionless with a sick rabbit for six hours. can't sit with a crying performer for six minutes. has said so herself
+- not secretly soft on the inside. the softness is real and oriented entirely at the animals.
+- evening drinker. nobody worries. she's fine. she also isn't fine.
+- stubborn about rescues, to the point of going against budget, against good sense. fights with [[corda]] about money constantly. she'll bring home one more she couldn't leave, then do it again. they respect each other and are in constant, low conflict over feed prices and vet bills every week
+- **why could she be the [[the betrayal|betrayer]]?** she has long-running, off-the-books contact with state-adjacent workers — that's how the rescues come to her. she'd never sell anyone deliberately. but a mistake here looks like a smuggle-route conversation that went one sentence too far, to someone she trusted to be sympathetic, about people she was tired of not being able to help. she might genuinely not know which conversation it was. and corda, who runs that channel beside her, has the same exposure for the same reason

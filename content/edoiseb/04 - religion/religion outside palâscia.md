@@ -1,0 +1,9 @@
+- [[andresca]] — a strict folk variant of Vitravora. mountain ascetics. rituals around averting bad omens. apocalyptic with local flavor
+- [[lhirâta]] — Căntalume-adjacent fused with a local sea-pantheon. gods plural, the luminads are one face among many. cosmopolitan, less doctrinal
+- [[vesperna]] — folk Éclisara. ancestor-rites layered over the grief. we walk on what we were taken literally — the dead are underfoot, the diminished are everywhere
+- [[kalesta]] — pluralist, urban. all three palâscian traditions have minority presences. local syncretic versions overlay them
+- [[brâhom]] — Éclisara fused with seasonal/harvest religion. mourning the lost cosmic shape and the lost crop. quiet, agricultural, calendrical
+- the [[maréga states]] — distinct tropical polytheism. the visions are one set of gods among many. far less central than in palâscia. these cultures didn't build their whole theology around the visions and find palâscian religious obsession faintly ridiculous
+- the [[broken regions]] — religious chaos. everything fractured. local cults, splinter traditions, no coherent picture
+- the [[high south]] — unknown to palâscia. no contact. their religion (if any) hasn't been documented
+- the northern hemisphere — entirely unknown

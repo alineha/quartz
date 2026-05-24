@@ -1,0 +1,1 @@
+agricultural mid-sized country. food-supplier to [[palâscia]]. economically dependent. internal politics contentious (some factions want full independence, others want full annexation, most in the middle)

@@ -1,0 +1,6 @@
+- wren male he/him, isk female she/her
+- the young aerialists [[fárlo]] now trains and catches. one [[çintalhenses|çintalhense]] (isk, early transformation, still passes), one unconverted (wren)
+- they're the future — the thing the troupe is actually protecting. the reason [[fárlo]] gets up. the proof the [[l'cirqur lhêvora|circus]] has tomorrow, not just history
+- they were children when the burning happened.
+- wren adores [[kindle]] (because she has mastery over her body)
+- **why could they be the [[the betrayal|betrayer]]s?** they're young. the young can be frightened into things. or flattered. or simply not understand what a question costs until they've answered it. neither would mean to. that doesn't matter to the outcome

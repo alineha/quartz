@@ -1,0 +1,21 @@
+- orlen [[qervâdle]]. the hand. did most of the killings, if not all. trained [[kindle]] as his successor
+- warm. genuinely. soft-spoken. patient. proud of her without conditions she could feel. a good father at the table
+- she does not get to hate him
+- the creed wasn't a rationalization to him. it was simply true. he was at peace
+- no gap between the gentle father and the executioner. one continuous man. the hands that braided her hair did the work. the voice that comforted her explained, kindly, why the work was kindness
+- taught her like a craftsman teaches a beloved apprentice. corrections gentle. never shouted. his hands over hers. his voice low and pleased
+- the warmest time they spent together was the training. that's the unbearable part
+- the language was always mercy. never hate. "we spare them the bad death." she was raised inside compassion vocabulary
+- that's why she can't rebel clean. the circus fits inside his logic. he'd be proud
+- the gardener. tended growing things with the same patience he brought to the work. coaxed. never forced. talked to slow plants like to a nervous apprentice
+- seedling in the morning, clean death in the afternoon. no contradiction. ever. both the disciplined loving hand doing what's kind for the thing in front of it
+- the one crack. a child, born converted. used by their own family as a household battery. found out. already decaying. the system had the child killed — a warning, and disposal of a useless battery. orlen was the blade
+- the crack wasn't "killing is wrong." it was that the child wasn't condemned for mercy. for convenience. his whole theology needs the reason to be mercy
+- he did it perfectly. it was still the gentlest thing in that room. and the creed didn't answer
+- he revered [[orsemar]]'s final rule. the child is part of why it sat wrong in him
+- never spoke of it. [[kindle]] glimpsed only the aftershadow — a silence that didn't match the serene man. she's always half-remembered it. refuses to look. it's the only proof she has that even he, somewhere, registered the creed could be used for wrong
+- his one insecurity: he worried [[thessa]] loved the creed more than she loved him. he out-gentled the world and still felt out-believed at his own table
+- how he died — [[kindle]] doesn't know. killed in the early revolt, ~90. the [[qervâdle|qervâdles]] were among the first targets. he didn't fight. wasn't a soldier. a craftsman. mobs got him. an unclean death. messy. frightened. undignified. no disciplined hand to spare him
+- the man whose whole life was the doctrine that an unclean death is the one true cruelty got exactly that
+- [[kindle]] does not know it was bad. she's spent years refusing to imagine how — because she knows, in his own creed, what a death like that means, and can't bear to apply his theology to him
+- what she carries: one plant. a dormant bulb. the only thing that survived the trampling of his garden. wrapped in cloth. replanted wherever the circus winters. dead-looking most of the year. not dead. (a season she's sure she finally let it die. it returns anyway)

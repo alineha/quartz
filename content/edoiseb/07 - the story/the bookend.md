@@ -1,0 +1,15 @@
+- the [[qervâdle]] blade reaches for [[aldvor]] twice. the era's bookend
+- first reach (~70s): [[aldvor]], declining on [[vow]]'s apex roster, crosses "non-viable." condemned. routine. the blade is dispatched. [[vow]] refuses to deliver him. lies up the chain — aldvor is fine, functional, nothing to see
+- that refusal is the break. the concrete moment she would not sign the name. the revolution's first act, before it's a revolution, is one officer refusing one delivery
+- it was a [[qervâdle]] pawn, not [[orlen]], who'd have done it. but [[orlen]] knew the lie was a lie — he reads decline. he could see [[aldvor]] was too far gone
+- he didn't expose it. instead, for ~15 years, he came back. gently. periodically. to check. to ask [[vow]], kindly, whether she was ready yet. whether she'd let him do the merciful thing now
+- not a threat. he sincerely believed he was offering her a kindness. in his creed, letting [[aldvor]] rot to protect a lie is the cruelty. the clean hand is the mercy. [[vow]], hiding her husband from the blade, is the one being unkind. out of love
+- he only ever dealt with [[vow]]. never saw [[aldvor]]. the polite recurring knock on a door never opened
+- so [[vow]] knew [[orlen]] [[qervâdle]] personally. his name. his voice. his gentleness. fifteen years refusing a kind man's sincere, repeated offer to kill her husband
+- when she learns [[kindle]] is [[kindle|eşkin]] [[qervâdle]] — [[orlen]]'s daughter, his trained successor — it will be a problem
+- second reach (~89): the institution comes back to finish it. [[aldvor]] maximally non-viable. the system moves to clear him. [[vow]] has organized in shadow for ~15 years. this is the thing that makes her stop waiting
+- she converts (89). the revolution breaks (90). [[silv]] dies in it — defending the very father both reaches were aimed at
+- the [[qervâdle|qervâdles]] open the wound. the [[qervâdle|qervâdles]] light the fuse. [[orlen]] dies, unclean, in the revolt his institution's reach ignited. [[kindle]] is their heir
+- [[thessa]]'s ledger — the loaded gun. [[orlen]] "checked on" [[aldvor]] for fifteen years → [[aldvor]] has an entry. open. unfinished. the one [[çintalhenses|battery]] the blade never closed
+- [[thessa]]'s tender, total, stalking portrait of the man the revolution was founded to save. annotated across fifteen years of waiting
+- location unknown to [[kindle]]. destroyed? [[cinzária]]? state evidence (with the prison records)? if it survives and reaches [[vow]] or [[quell]] — it does not just contain [[aldvor]]. it names [[kindle]]. the most dangerous object in the world to put in front of either of them

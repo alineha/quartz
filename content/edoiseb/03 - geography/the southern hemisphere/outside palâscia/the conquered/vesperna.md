@@ -1,0 +1,1 @@
+far-southern country, annexed last and incompletely. cold tundra, scattered population, terrible terrain. [[palâscia]] officially controls it but functionally only holds a few cities. people sometimes flee to vesperna's interior to disappear forever

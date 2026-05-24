@@ -1,0 +1,6 @@
+- mavrenne female she/her, yulic male (ftm) he/him, branno male he/him
+- mavrenne leads. unconverted, brass and the low drum, the [[l'cirqur lhêvora|circus]]'s pulse. two other unconverted men under her (yulic the strings, and branno, the squeeze-box)
+- yulic and branno are both in love with mavrenne
+- mavrenne is blunt, unsentimental, runs her section like a sergeant, has no patience for the troupe's silences and griefs — which makes her the one person who says the blunt true thing at the worst moment, sometimes cruelly, sometimes the only honesty in the tent
+- **why could mavrenne be the [[the betrayal|betrayer]]?** she controls the sound — what the show is allowed to say, nightly. the most quietly powerful unflagged position in the troupe. and she's pragmatic to the bone, the kind of person who'd call a betrayal "a hard call" if the arithmetic looked right
+- **why could yulic or branno be the [[the betrayal|betrayer]]?** TBD
