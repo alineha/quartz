@@ -7,8 +7,14 @@ aliases:
   - çintalhense
   - battery
   - batteries
+  - luminads
+  - vitrais
+  - vitraol
+  - vitraal
+  - eclipses
+  - eclipse
 created: 2026-05-23T16:16:17.754-03:00
-modified: 2026-05-23T17:50:02.912-03:00
+modified: 2026-05-24T19:25:28.770-03:00
 ---
 
 - the converted ones™. can direct [[lutrons|lutron]] flow (the whole power-source thingy majingy)

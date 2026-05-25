@@ -1,3 +1,11 @@
+---
+publish: true
+aliases:
+  - silvarèn
+created: 2026-05-23T16:53:26.128-03:00
+modified: 2026-05-24T23:44:29.146-03:00
+---
+
 - silvarèn pôsc-lhuverre. born 70 PÇ, died 90 PÇ at 20, in the [[the revolution (90PÇ)|revolution]]. 8 years older than [[quell]], 3 years older than [[kindle]]
 - born [[çintalhenses|çintalhense]]... a rare case, and as a direct result of [[aldvor]]'s conversion. [[aldvor]] was already converted (poor man, [[çintalhenses|battery]] contract) when silv was conceived; [[vow]] was still unconverted. silv came out already one of them. lifelong, complete transformation. he had no "before." he was only ever this
 - appearance: the sanitized creepy lamb/goat. silv's lifelong transformation read ovine. small curling horns, soft fluffy ears, a fleece-like texture to parts of him, rectangular goat-pupils, a faint constant glow that did not comfort. gentle and unsettling at once, the air felt strange near him. people who didn't know him found him deeply uncanny. the people who loved him just found him silv. the state took that and sanded it into holy iconography - silvarèn the radiant lamb of the revolution, horns softened into a halo, the wrongness airbrushed out, the goat made into a symbol of sacrifice

@@ -1,3 +1,13 @@
+---
+publish: true
+aliases:
+  - mavrenne
+  - yulic
+  - branno
+created: 2026-05-23T16:54:25.631-03:00
+modified: 2026-05-24T23:40:56.910-03:00
+---
+
 - mavrenne female she/her, yulic male (ftm) he/him, branno male he/him
 - mavrenne leads. unconverted, brass and the low drum, the [[l'cirqur lhêvora|circus]]'s pulse. two other unconverted men under her (yulic the strings, and branno, the squeeze-box)
 - yulic and branno are both in love with mavrenne
