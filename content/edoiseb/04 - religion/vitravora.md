@@ -1,3 +1,12 @@
+---
+publish: true
+aliases:
+  - vitravoran
+  - vitória
+created: 2026-05-23T16:51:50.003-03:00
+modified: 2026-05-25T09:02:59.084-03:00
+---
+
 - the warning tradition. the [[cosmic context|visions]] are not promises. they are glimpses through breaking glass — what humanity becomes when something has gone wrong. religion as prophecy
 - humans/humanity as a whole is holy, and attains holiness from knowledge. a vibe of gnostiscism.
 - their word for the visions: [[çintalhenses|vitrais]], [[çintalhenses|vitraol]], [[çintalhenses|vitraal]] ("the seen-throughs, the warnings glimpsed"). adherents: vitravorans.

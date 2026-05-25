@@ -3,7 +3,7 @@ publish: true
 aliases:
   - eşkin
 created: 2026-05-23T16:52:56.366-03:00
-modified: 2026-05-24T15:52:37.244-03:00
+modified: 2026-05-25T09:21:45.528-03:00
 ---
 
 - unconverted, jester, knight-like figure. uses swords for performance (but does know how to fight)
@@ -59,3 +59,19 @@ kindle knows [[the rote]], written by [[orsemar]], as if it were written in her 
 - reverence she feels guilty over: she finds their transformations beautiful
 - she wants to deserve to be near them
 - she joined the [[l'cirqur lhêvora|circus]] partly to be caught. she wants to be seen and she wants to be punished. proximity to [[çintalhenses]] is both at once
+
+#### HER BLADES
+
+- forged for her by [[anciâ]]. [[anciâ]]'s own hands. before the discipline was crushed. given on the day kindle finished her apprenticeship
+- the [[qervâdle]] blade is separate. a different lineage entirely. kindle does not carry it.
+- her ceremonial blade — broader, theatrical, the clown blade — is what the audience sees. she has never performed publicly with the [[a vârsălhe|vârsalho]] pair. they are for dawn and dusk practice only
+- the only person who ever saw the [[a vârsălhe|vârsalho]] pair used at full intent, possibly: [[orvaccio]]. on the night she joined. (part of how he knew what she was.)
+
+#### THE NIGHTLY PRACTICE
+
+- she does the dusk practice every night without exception. in ten years, she has not missed one
+- she does the dawn practice most mornings. on bad mornings she does a single form, briefly, to keep the streak from breaking. [[bell]] knows about the dawn practice. [[bell]] is the only one in the troupe up before her. they have never said anything about it
+- she says the words at the end of every practice. _i see you_. _i was seen_. to an empty room. she does not believe in [[vitravora]]. she says them anyway
+- she has stopped speaking the principles aloud. she does the forms in silence.
+- she avoids the form of exposure. every night, when the practice reaches it, she does the form of remainder twice instead and lies to herself that she'll do exposure tomorrow. she who hides cannot bear in full light there is nowhere to hide. it would be the truest moment of her life and she will not have it. the discipline forbids skipping it. she skips it.
+- she practices in a small clear space — wherever the circus puts her. caravan corner, behind the tent, under stars. always the same sequence. always alone. [[anciâ]]'s blades in her hands ten years after the discipline was crushed. she is its only practitioner she knows of who still does the full rhythm. she is, accidentally, the discipline. alone. nightly. unwitnessed
