@@ -38,3 +38,5 @@
 - he's a funny man. makes puns. he loves. he keeps his soul, even at his wit's end. it's beautiful, and heartbreaking.
 - she starts seeing him. once she sees one, the roster stops being just numbers on a sheet
 - loving [[aldvor]] and turning against the system are not two events. they are one. seeing him is the treason. the love and the revolution have a single root: a failure of the hardness her parents installed
+- kept him home for years before the care decision. the only military order she ever signed with a shaking hand. [[the periferia interna]] was a deliberate kindness. visits rarely. cries only at [[the apex]] with the door closed
+- has a mended glove that was his first gift to her in a drawer.

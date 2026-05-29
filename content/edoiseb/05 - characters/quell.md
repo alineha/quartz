@@ -7,6 +7,7 @@
 - for him she's quiet in a way no one else (that he had interacted with for a meaningful amount of time) is
 - the obsession edges on creepy! it has power imbalance, class gap.
 - mostly does backstage work, though he _does_ do some [[lutrons|lutron]] light-performances intermittently
+- visits [[aldvor]] regularly. has never told [[vow]] that aldvor sometimes thinks he's [[silv]]. answers as [[silv]] when it happens. carries a dead brother by pretending to be him for an hour at a time
 
 #### CHILDHOOD
 
