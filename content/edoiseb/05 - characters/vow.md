@@ -10,6 +10,7 @@
 #### THE FRONTIER
 
 - frontier military family. far province. a cold "nowhere". "onde judas perdeu as botas".
+- grew up bilingual. vespernic at home, palâscian at school. she dropped vespernic deliberately when she clawed out. it surfaces only unguarded. never around [[quell]]
 - harsh parents. doctrinal, not sadistic. they believed hardness was the only love that keeps a child alive. softness = a liability that gets you killed
 - clawed out of the provinces. by 20, the youngest-ever high-ranking officer in [[morrânça]]. exceptional, but alone.
 

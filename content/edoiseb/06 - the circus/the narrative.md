@@ -6,7 +6,7 @@
 
 - 7 acts, one fable. each act corresponds to a story beat.
 - two readings: one politically charged, one softer. every night [[orvaccio]] has to gamble whether or not to tell the _real_ story and risk having the [[l'cirqur lhêvora|circus]] shut down
-- the visual signature: many hanging lamps. fairy lights threaded across the rigging, the seating, the tent-seams. lit by [[çintalhenses]] — the lamps glow because of their bodies. the audience sits inside light made of [[conversion mechanisms|conversion]]. the visual is the thesis before [[orvaccio]] says a word
+- the visual signature: many hanging lamps, amber-glassed (see the lampkeeper's signal [[laws|law]]). fairy lights threaded across the rigging, the seating, the tent-seams. lit by [[çintalhenses]] — the lamps glow because of their bodies. the audience sits inside light made of [[conversion mechanisms|conversion]]. the visual is the thesis before [[orvaccio]] says a word
 - the band runs continuous under everything. [[mavrenne, yulic and branno|mavrenne]] leads. they read the room nightly. [[the periferia interna|periferia interna]] = sweeter. [[cinzária]] = closer to the throat
 - [[kindle]] is the recurring jester. she interrupts. comments. sets things up between acts. the comic connective tissue. the audience does not yet know what she is
 - [[quell]] and other [[çintalhenses]] light the show. [[quell]] is rarely in the ring proper — backstage, threading the lamps, modulating the flow. the lighting design is his act

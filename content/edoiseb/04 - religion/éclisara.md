@@ -3,11 +3,13 @@ publish: true
 aliases:
   - éclisaras
   - éclisaran
+  - finsteni
 created: 2026-05-23T16:51:59.772-03:00
-modified: 2026-05-24T19:27:49.806-03:00
+modified: 2026-05-29T10:42:17.168-03:00
 ---
 
 - the diminished tradition. the [[cosmic context|visions]] are what humanity should have been. we are the broken version. religion as collective grief for an unfallen state
+- known as **finsteni** in [[vesperna]]
 - their word for the [[cosmic context|visions]]: [[çintalhenses|eclipses]]. adherents: also eclipses. one word. the visions and the worshippers are the same noun — we are all eclipses of what we should have been. the grammar is the theology
 - pre-[[çintálhi]]: quiet. contemplative. no missionary impulse. rural, frontier, the small towns and the cold places. no temples worth the word — practiced at home, at hearths, in small gatherings. the unflashy religion. underestimated
 - practice: rites of remembering. marking-what-was-lost. naming the diminishments. a culture of stoic grief and quiet daily honoring of an unwitnessed fall. we walk on what we were

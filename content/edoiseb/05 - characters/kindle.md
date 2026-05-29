@@ -3,7 +3,7 @@ publish: true
 aliases:
   - eşkin
 created: 2026-05-23T16:52:56.366-03:00
-modified: 2026-05-25T09:21:45.528-03:00
+modified: 2026-05-29T10:47:35.140-03:00
 ---
 
 - unconverted, jester, knight-like figure. uses swords for performance (but does know how to fight)
@@ -12,6 +12,7 @@ modified: 2026-05-25T09:21:45.528-03:00
 - performs kindness she doesn't feel
 - knight-coded → she serves the audience. owes them joy and can never pay the debt
 - swords are practical (her only weapon) and symbolic (relic, discipline, the only thing she's actually good at & also a way to hurt herself through endless training)
+- raised speaking brihčian, still sometimes catches herself almost using brihčian words instead of the new palâscian ones.
 
 #### BACKSTORY
 

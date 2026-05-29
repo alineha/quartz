@@ -2,6 +2,7 @@
 - tobelle. "bell." [[vow]]'s older sibling. born female, nonbinary, they/them. blind
 - bell "failed" their parents twice. the blindness and the unwillingness to be a woman that would be useful as a political tool, if nothing else.
 - wasn't but under persecution, but suffered from attrition. their parents stopped investing on them. they weren't trained, weren't protected, weren't brought along. left in the provinces when [[vow]] rose in the military
+- vespernic is bell's mother tongue. they think in vespernic and translate. palâscian is, for them, work. vespernic was home. part of why they are quiet
 - bell half-raised young [[vow]]. the only softness in that house.
 - [[vow]] named them. child-[[vow]], in that hard house, called tobelle "bell". they kept the name.
 - [[vow]] always got it right. the pronouns, the seeing. even as a child.
